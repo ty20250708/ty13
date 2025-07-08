@@ -10,4 +10,4 @@
 
 本站为您提供最新的高清影视资源，涵盖多种类型，满足各类观众的需求。平台内容包括最新的国产片、经典的日本大片以及各种AA级影视资源。我们致力于提供无广告、流畅的观看体验，更新迅速，确保您随时观看到最新、最精彩的影片。无需注册，点击即播，享受高清影视带来的极致体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ty20250708/ty13 ）</span>
